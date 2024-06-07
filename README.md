@@ -1,1 +1,1 @@
-oii sou casada com minha namorada
+oii sou casada com minha namorada nary
